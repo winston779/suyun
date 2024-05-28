@@ -1,6 +1,6 @@
 # 速云机场官网地址
 
-最新地址：[sudns.top](https://lsproxy1.top/#/register?code=AoP6A2mj)
+最新地址：[sudns.top](https://aaa.sucdn.top/#/register?code=AoP6A2mj)
 
 ## 速云机场介绍
 
